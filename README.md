@@ -1,0 +1,1 @@
+# mentoring-17-06-22-objects-exercises
